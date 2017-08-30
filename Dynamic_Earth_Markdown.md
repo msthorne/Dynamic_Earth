@@ -23,7 +23,6 @@ broad range of dynamic processes in Earth systems. Two lectures, one lab weekly.
 supplemental readings will be provided electronically via canvas.
 
 **1. Policies**
----------------
 
 *Grades:* Final grades are based on following weights:
 
